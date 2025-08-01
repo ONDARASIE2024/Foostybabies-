@@ -50,7 +50,6 @@ Please connect via email!
 **Quinshuna Carter**  
 Founder & Trustee, DEM CARTERS LLC  
 📧 quincarter1988@gmail.com  
-📱 702‑775‑4131  
 🌍 [DEM CARTERS Website](https://sites.google.com/view/demcartersbtc)
 
 ---
